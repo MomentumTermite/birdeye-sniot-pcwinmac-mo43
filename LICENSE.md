@@ -1,4 +1,4 @@
-# 
+# Profissional birdeye sniper bot extensões para Mac OS | Top birdeye sniper bot extensões para PC Windows. Com cálculo de lucros e conversão de formatos — otimizado para máximo desempeño en cada plataforma.
 
 
 
